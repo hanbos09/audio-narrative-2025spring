@@ -8,14 +8,26 @@ I found that when I just focused on making something that would make both him an
 
 Here is a list of the assets used all under creative commons or fair use:
 Footsteps- 15. Svostrup Kro (Inn), wooden footsteps, walking by mathiaslyhne1 -- https://freesound.org/s/798144/ -- License: Creative Commons 0
+
 Door- Door Open:Close, Weather Stripping.wav by Barnface -- https://freesound.org/s/333249/ -- License: Creative Commons 0
+
 Cat Meow 1- Begging Meow by Lukey1028 -- https://freesound.org/s/732521/ -- License: Creative Commons 0
+
 Cat Meow 2- LITTLE CAT MEOW.mp3 by escobarrb26 -- https://freesound.org/s/538527/ -- License: Creative Commons 0
+
 Cat Meow Interrupting- cat meow variation 2 by Tigerlily0416 -- https://freesound.org/s/765784/ -- License: Attribution NonCommercial 4.0
+
 Cat Purrs- cat purrs again.flac by arseniiv -- https://freesound.org/s/707237/ -- License: Creative Commons 0
+
 Fantasy Overture- Tchaikovsky-Romeo and Juliet (Fantasy Overture) converted from a youtube video by The Wicked North --https://www.youtube.com/watch?v=_Od7gx3Dc-U -- License: Creative Commons 0
+
 Ear Ringing- Ear Ringing (After explosion) by dbdarby -- https://freesound.org/s/365956/ -- License: Creative Commons 0
+
 Furnace- noise - heater.wav by Anthousai -- https://freesound.org/s/398818/ -- License: Creative Commons 0
+
 Marvel Rivals Playthrough- Converted from a youtube video by Lonesomary -- https://www.youtube.com/watch?v=2sYJI1HGSvw -- License: Fair Use under YouTube guidelines
+
 PS5 Controller- My own recording
+
 Kiss- My own recording
+
